@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently working UNITY with claude AI.<br>i will make INDI GAME<br>i am test engineer(QA)
+QA, INDI, 
 
 
 ## 🌐 Socials:
